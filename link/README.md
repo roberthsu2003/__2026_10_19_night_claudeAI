@@ -17,3 +17,8 @@ https://www.youtube.com/watch?v=nyDME6le4t8
 https://www.youtube.com/watch?v=80NuSKc3ZQs
 
 ---
+
+## 2026_11_04_晚上
+https://www.youtube.com/watch?v=39l2Vc79y7k
+
+---
