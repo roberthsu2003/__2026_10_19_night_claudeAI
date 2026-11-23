@@ -42,3 +42,8 @@ https://www.youtube.com/watch?v=P6wW0BART2Y
 https://youtube.com/live/_JisWJ3N8Nc
 
 ---
+
+## 2026_11_23_晚上
+https://www.youtube.com/watch?v=4fnp9liMijA
+
+---
